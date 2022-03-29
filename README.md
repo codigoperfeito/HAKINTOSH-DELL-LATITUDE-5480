@@ -1,0 +1,1 @@
+Meu hakintosh particular
